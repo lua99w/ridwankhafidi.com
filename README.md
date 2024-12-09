@@ -1,2 +1,2 @@
-# ridwankhafidi.com
+# ridwankhafidi.dev
 about me
